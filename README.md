@@ -1,0 +1,1 @@
+# Tugas10_RifkaAuliaPutri552010125015.py
